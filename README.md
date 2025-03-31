@@ -1,4 +1,4 @@
-Empresa Doce Delícia
+Empresa Doces Alegria
 
 MISSÃO:
 
